@@ -3,3 +3,4 @@ NP.: Vois ten jest do hakowania np.: mark 85, Iron men god mark, Mark 37 extrime
 Postacie z bajek i filmów, rzadkie voisy, Voisy zegarki, oszczędzacze rzadkie. I inne rzadkie rzeczy np.: sztabki złota, paladu, srebra, platyny i miedzi czy tytanu.
 Można też odsyskać skradzione klucze czy zgubione do zamka. 
 Drukowanie i wymyślanie urządzeń free energy. 
+Jak nic nie da się zrobić lub pozyskać można z obrazu schakować i wydrukować. 
